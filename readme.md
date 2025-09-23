@@ -15,6 +15,8 @@ Alps 口子軸組的 5×15 直列鍵盤
   - 老鍵盤拆機 Alps SKCM 軸體
   - 中文刻印鍵帽拆自四通打字機鍵盤
 
+記錄片 [【ALPS 蓝轴　四通打字机键帽　品鉴哥：真好。如何能拥有？】](https://www.bilibili.com/video/BV1UfY3z7EDY/)
+
 ---
 
 多圖預警
